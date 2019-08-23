@@ -2,6 +2,8 @@
 
 ## What do I need to make mate ?
 
+yerba mate - ![](http://www.ervamatemazutti.com.br/wp-content/uploads/2019/01/composicao.jpg)
+
 ## How to make a classic mate ?
 1. Heat the water but do not let it boil, let it heat until the water creates bubbles.
 2. While the water is not squeaking, put yerba mate in the bowl until you fill 3/4 of the bowl
