@@ -1,11 +1,11 @@
-#**Chimarrão Pythonico**
+# **Chimarrão Pythonico**
 
-##O que preciso ter para fazer um chimarrão ?
+## What I need to do mate ?
 
-## Como fazer um chimarrão clássico ?
-1. Aqueça a água, mas **não deixe ferver**, deixa aquecer até a chaleira chiar.
-2. Enquanto a água não chia, bote erva mate na cuia até encher 3/4 da cuia
-3. Assim que a água começar a aquecer tampe a boca da cuia com a mão e vire de lado, após  bote água morna no lado que não tem erva e deixe inchando a erva mate. **Não inchar com água fervente!**
+## How to make a classic mate ?
+1. Heat the water but do not let it boil, let it heat until the water creates bubbles.
+2. While the water is not squeaking, put yerba mate in the bowl until you fill 3/4 of the bowl
+3. As soon as the water begins to warm, cover the mouth of the gourd with your hand and turn it over, then put warm water on the side that has no weed and let it swell the mate. Do not swell with boiling water!
 
-## Como fazer um bom para quem nunca tomou chimarrão ?
-## Dicas importantes
+## How to make a good one for those who never took mate ?
+## Important tips
