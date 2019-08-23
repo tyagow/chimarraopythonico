@@ -1,6 +1,6 @@
 # **Pythonic Mate**
 
-## What I need to do mate ?
+## What do I need to make mate ?
 
 ## How to make a classic mate ?
 1. Heat the water but do not let it boil, let it heat until the water creates bubbles.
